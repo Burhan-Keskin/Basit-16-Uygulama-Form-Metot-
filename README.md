@@ -1,0 +1,1 @@
+# Basit-16-Uygulama-Form-Metot-
